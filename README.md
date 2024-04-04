@@ -1,2 +1,2 @@
 # NOMAS PASABA POR AQUÍ PARA DECIRTE QUE ERES HERMOSA, GINGER-
-mensaje declaratorio   
+me gusto tu mirada empoderada 
